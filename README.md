@@ -2,7 +2,7 @@
 - 👀 I’m interested in web integration
 - 🌱 I’m currently learning html css sass and git
 - 💞️ I’m looking to collaborate on any projects at a beginners level.
-- 📫 How to reach me tanyamarius@hotmail.com
+- 📫 How to reach me tanyamarius@gmail.com
 - 😄 Pronouns: she and her
 - ⚡ Fun fact: I make beer
 
